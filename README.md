@@ -1,4 +1,4 @@
-# OPEN LEDGER BOT By Satyam
+# OPEN LEDGER BOT BY [CRYPTO SATYAM]
 
 ![banner](image.png)
 
